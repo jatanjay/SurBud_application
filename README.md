@@ -1,4 +1,3 @@
-## Jatan Pandya 
 
 [email](mailto:jatanjay212@gmail.com) | [web](https://jatanjay.github.io/) | [resume](https://drive.google.com/file/d/1b1tp17xBbkccwq57FWOwLbEbKKXXEAs2/view?usp=sharing) | [github](https://github.com/jatanjay)
 
